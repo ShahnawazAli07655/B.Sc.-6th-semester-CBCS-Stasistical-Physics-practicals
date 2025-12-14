@@ -1,0 +1,1 @@
+# B.Sc.-6th-semester-CBCS-Stasistical-Physics-practicals
